@@ -1,2 +1,1 @@
-# ini-baru
-coba coba belajar github
+irvan ganteng tapi boong
